@@ -1,12 +1,13 @@
 ### अव्यादजोऽङ्‍‍घ्रि मणिमांस्तव जान्वथोरू
-### यज्ञोऽच्युत: कटितटं जठरं हयास्य: ।    
+### यज्ञोऽच्युत: कटितटं जठरं हयास्य: ।
 ### हृत्केशवस्त्वदुर ईश इनस्तु कण्ठं
 ### विष्णुर्भुजं मुखमुरुक्रम ईश्वर: कम् ॥ २२ ॥
 
-चक्रय‍ग्रत: सहगदो हरिरस्तु पश्चात्
-त्वत्पार्श्वयोर्धनुरसी मधुहाजनश्च ।    
-कोणेषु शङ्ख उरुगाय उपर्युपेन्द्र-
-स्तार्क्ष्य: क्षितौ हलधर: पुरुष: समन्तात् ॥ २३ ॥
+
+### चक्रय‍ग्रत: सहगदो हरिरस्तु पश्चात्
+### त्वत्पार्श्वयोर्धनुरसी मधुहाजनश्च ।
+### कोणेषु शङ्ख उरुगाय उपर्युपेन्द्र-
+### स्तार्क्ष्य: क्षितौ हलधर: पुरुष: समन्तात् ॥ २३ ॥
 
 Synonyms
 
@@ -16,13 +17,9 @@ Translation
 
 [Śukadeva Gosvāmī informed Mahārāja Parīkṣit that the gopīs, following the proper system, protected Kṛṣṇa, their child, with this mantra.] May Aja protect Your legs, may Maṇimān protect Your knees, Yajña Your thighs, Acyuta the upper part of Your waist, and Hayagrīva Your abdomen. May Keśava protect Your heart, Īśa Your chest, the sun-god Your neck, Viṣṇu Your arms, Urukrama Your face, and Īśvara Your head. May Cakrī protect You from the front; may Śrī Hari, Gadādharī, the carrier of the club, protect You from the back; and may the carrier of the bow, who is known as the enemy of Madhu, and Lord Ajana, the carrier of the sword, protect Your two sides. May Lord Urugāya, the carrier of the conchshell, protect You from all corners; may Upendra protect You from above; may Garuḍa protect You on the ground; and may Lord Haladhara, the Supreme Person, protect You on all sides.
 
-Purport
-
-Even in the houses of the cultivators, who were not very advanced in the modern ways of civilization, the ladies used to know how to chant mantras to give protection to children with the help of cow dung and cow urine. This was a simple and practical way to give the greatest protection from the greatest dangers. People should know how to do this, for this is a part of Vedic civilization.
-
 Text 24
-इन्द्रियाणि हृषीकेश: प्राणान् नारायणोऽवतु ।    
-श्वेतद्वीपपतिश्चित्तं मनो योगेश्वरोऽवतु ॥ २४ ॥
+### इन्द्रियाणि हृषीकेश: प्राणान् नारायणोऽवतु ।
+### श्वेतद्वीपपतिश्चित्तं मनो योगेश्वरोऽवतु ॥ २४ ॥
 
 Synonyms
 
@@ -33,11 +30,11 @@ Translation
 May Hṛṣīkeśa protect Your senses, and Nārāyaṇa Your life air. May the master of Śvetadvīpa protect the core of Your heart, and may Lord Yogeśvara protect Your mind.
 
 Texts 25-26
-पृश्न‍िगर्भस्तु ते बुद्धिमात्मानं भगवान् पर: ।    
-क्रीडन्तं पातु गोविन्द: शयानं पातु माधव: ॥ २५ ॥
+### पृश्न‍िगर्भस्तु ते बुद्धिमात्मानं भगवान् पर: ।
+### क्रीडन्तं पातु गोविन्द: शयानं पातु माधव: ॥ २५ ॥
 
-व्रजन्तमव्याद्वैकुण्ठ आसीनं त्वां श्रिय: पति: ।     
-भुञ्जानं यज्ञभुक् पातु सर्वग्रहभयङ्कर: ॥ २६ ॥
+### व्रजन्तमव्याद्वैकुण्ठ आसीनं त्वां श्रिय: पति: ।
+### भुञ्जानं यज्ञभुक् पातु सर्वग्रहभयङ्कर: ॥ २६ ॥
 
 Synonyms
 
@@ -48,14 +45,14 @@ Translation
 May Lord Pṛśnigarbha protect Your intelligence, and the Supreme Personality of Godhead Your soul. While You are playing, may Govinda protect You, and while You are sleeping may Mādhava protect You. May Lord Vaikuṇṭha protect You while You are walking, and may Lord Nārāyaṇa, the husband of the goddess of fortune, protect You while You are sitting. Similarly, may Lord Yajñabhuk, the fearful enemy of all evil planets, always protect You while You enjoy life.
 
 Texts 27-29
-डाकिन्यो यातुधान्यश्च कुष्माण्डा येऽर्भकग्रहा: ।    
-भूतप्रेतपिशाचाश्च यक्षरक्षोविनायका: ॥ २७ ॥
+### डाकिन्यो यातुधान्यश्च कुष्माण्डा येऽर्भकग्रहा: ।
+### भूतप्रेतपिशाचाश्च यक्षरक्षोविनायका: ॥ २७ ॥
 
-कोटरा रेवती ज्येष्ठा पूतना मातृकादय: ।     
-उन्मादा ये ह्यपस्मारा देहप्राणेन्द्रियद्रुह: ॥ २८ ॥
+### कोटरा रेवती ज्येष्ठा पूतना मातृकादय: ।
+### उन्मादा ये ह्यपस्मारा देहप्राणेन्द्रियद्रुह: ॥ २८ ॥
 
-स्वप्नद‍ृष्टा महोत्पाता वृद्धा बालग्रहाश्च ये ।   
-सर्वे नश्यन्तु ते विष्णोर्नामग्रहणभीरव: ॥ २९ ॥
+### स्वप्नद‍ृष्टा महोत्पाता वृद्धा बालग्रहाश्च ये ।
+### सर्वे नश्यन्तु ते विष्णोर्नामग्रहणभीरव: ॥ २९ ॥
 
 Synonyms
 
